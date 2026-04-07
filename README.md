@@ -15,9 +15,6 @@ ______________________________
 <p>RUSSIA IRL??: @SOLARSYSTEM-732</p>
 ______________________________
 <h1>"WHAT AM I GONNA DO IN A SUBMARINE ???"</h1>
-______________________________
-<p>dni if u know i dislike/avoid u pls.</b></p>
-
 <img src="https://upload.wikimedia.org/wikipedia/en/thumb/f/f3/Flag_of_Russia.svg/1280px-Flag_of_Russia.svg.png" alt="Flag of Russia" width="500">
 <h6>hmmmhgh rusame !</ph6>
 
