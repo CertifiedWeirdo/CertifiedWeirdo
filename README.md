@@ -3,6 +3,6 @@
 <head>
 </head>
 <body> 
-<h1>just check out sp</h1>
+<h1>CHECK OUT SP FOR INFO</h1>
 </body>
 </html>
